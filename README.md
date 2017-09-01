@@ -1,2 +1,2 @@
 # itlsqin.github.io
-Hi Humans!! Wecome here
+Hi Humans!! Welcome here
